@@ -61,7 +61,7 @@ Je suis une étudiante passionnée par le développement web et mobile, actuelle
 🔗 [Mon GitHub 1](https://github.com/prunelleeba)
 📧 adresse personnelle: Prunellengolong13@gmail.com  
 📞 +237 656.22.16.60  
-🔗 [Mon GitHub](https://github.com/Prune12)
+🔗 [Mon GitHub 2](https://github.com/Prune12)
 
 ---
 
